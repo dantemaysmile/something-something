@@ -1,7 +1,7 @@
 <pre>
-          he/neos
-        selfcest enthusist    usually in whispers/party :P
+          he/neos    Dante fictkin
+        selfcest enthusist    usually in whispers/party bcus off-tab/afk
           
-          i like kamen rider, super sentai, kingdom hearts,final fantasy, dmc, naruto
+          if you ship spardacest I'll kill you On God
 </pre>
-<img src="https://i.pinimg.com/originals/93/07/6e/93076ea4b8ae0d89962aead8a5e2e934.gif">
+<img src="https://i.pinimg.com/originals/84/54/32/8454326cf6da76fb50d564cf8d92d2cc.gif">
